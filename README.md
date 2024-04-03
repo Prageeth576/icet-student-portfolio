@@ -1,1 +1,1 @@
-https://prageeth576.github.io/icet-student-portfolio/
+https://prageeth-thilakarathna.github.io/icet-student-portfolio/
